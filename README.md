@@ -26,5 +26,6 @@ check out my cool graphics collection
   </div>
   <hr>
   <br>
-  if you wish to talk to me you can ask for my discord because thats the only social site I use consistently. yeah thats it bye
+  I dont like mainstream social media but I have a <a href="pokemaster28.neocities.org">neocities</a> and you can ask for my discord if you want
+  to talk to me. yeah thats it bye
   
