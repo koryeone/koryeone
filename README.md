@@ -26,6 +26,6 @@ check out my cool graphics collection
   </div>
   <hr>
   <br>
-  I dont like mainstream social media but I have a <a href="pokemaster28.neocities.org">neocities</a> and you can ask for my discord if you want
+  I dont like mainstream social media but I have a <a href="https://pokemaster28.neocities.org">neocities</a> and you can ask for my discord if you want
   to talk to me. yeah thats it bye
   
