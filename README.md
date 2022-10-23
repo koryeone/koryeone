@@ -6,7 +6,7 @@ I'm one of those people who actually like pokemon for the story. wow. crazy. <im
 <img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> dni if you fit <a href="listography.com/dni">basic dni</a> or if youre antirecovery. other than that I do not care. feel free to talk to me I don't bite!!
 unless youre a isshu/ferriswheel shipper actually then yes I do bite get out of my house
 
-I hide people freely <3
+I hide people freely <3. apparently I have to state this but if I've hidden you then thats the end of it. don't try to bypass with an alt or sic your friends on me seriously what is going through your mind
 <hr>
 check out my cool graphics collection
 <div>
