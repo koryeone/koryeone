@@ -7,7 +7,7 @@ I'm one of those people who actually like pokemon for the story. wow. crazy. <im
 
 I hide VERY freely, if youre hidden it is not personal I promise
 
-apparently I have to state this but if I've hidden you then thats the end of it. don't try to bypass with an alt or sic your friends on me seriously what is going through your mind
+pleaseeeeeeplease interact with me I love making friends.....
 <div>
 <img src="https://barbara.crd.co/assets/images/gallery37/0d398f33_original.png"> <img src="https://barbara.crd.co/assets/images/gallery14/ba490e9c_original.png"> <img src="https://media.discordapp.net/attachments/1035684052805627977/1035720292712071248/aro_stamp.png">
 
