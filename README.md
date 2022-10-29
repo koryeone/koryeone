@@ -7,7 +7,8 @@ I'm one of those people who actually like pokemon for the story. wow. crazy. <im
 
 apparently I have to state this but if I've hidden you then thats the end of it. don't try to bypass with an alt or sic your friends on me seriously what is going through your mind
 <div>
-<img src="https://barbara.crd.co/assets/images/gallery37/0d398f33_original.png"> <img src="https://barbara.crd.co/assets/images/gallery14/ba490e9c_original.png">
+<img src="https://barbara.crd.co/assets/images/gallery37/0d398f33_original.png"> <img src="https://barbara.crd.co/assets/images/gallery14/ba490e9c_original.png"> <img src="https://media.discordapp.net/attachments/1035684052805627977/1035720292712071248/aro_stamp.png"
+
   </div>
   <br>
   I dont like mainstream social media but I have a <a href="https://pokemaster28.neocities.org">neocities</a> and you can ask for my discord if you want
