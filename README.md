@@ -1,3 +1,5 @@
+<a href="http://users.smartgb.com/g/g.php?a=s&i=g19-00562-49">sign my guestbook?</a>
+<br>
 <b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif?v=115e6ed7"><br>
 seasian, nonbinary aroace lesbian
 <br><a href="https://en.pronouns.page/@solistice">they/he +</a>
