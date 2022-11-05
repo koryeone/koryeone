@@ -7,7 +7,11 @@ seasian, nonbinary aroace lesbian
 I like pokemon!! <img src="https://barbara.crd.co/assets/images/gallery05/770177fc.gif"><img src="https://barbara.crd.co/assets/images/gallery05/a1c9e904.gif"> (specifically gameverse, speverse, and pokemas. I have not watched the anime in 3 million years and I do not intend to catch up anytime soon)
 I'm one of those people who actually like pokemon for the story. wow. crazy. <img src="https://barbara.crd.co/assets/images/gallery27/4d0157d1.gif"> I like other stuff too but I basically only talk about pokemon so who cares.
 
-I can do rp for MOST of the cosplays I use but uhhhhh warn me beforehand if youre gonna drag me into one bc I need to get into character. :thumbs up emoji:
+<img src="https://barbara.crd.co/assets/images/gallery37/3bb57ebd_original.gif">
+
+I can do rp for MOST of the cosplays I use but uhhhhh warn me beforehand if youre gonna drag me into one bc I need to get into character :thumbs up emoji:. I mainly do short silly stuff on ponytown, my actual writing is reserved for my friends :3c
+
+<hr>
 
 <b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b>
 <ul>
@@ -17,9 +21,8 @@ I can do rp for MOST of the cosplays I use but uhhhhh warn me beforehand if your
   <li><b>fans of that lullaby fnf mod. I dont like you sorry</b></li>
 </ul>
 
-<img src="https://barbara.crd.co/assets/images/gallery37/3bb57ebd_original.gif">
+I hide VERY freely, if you're hidden its not personal I promise
 
-I hide VERY freely, if youre hidden it is not personal I promise
-
-<a href="https://pokemaster28.neocities.org">my neocities,</a> you may ask for my discord if you want to talk in dms or something
-  
+<br>
+site button<br>
+<a href="https://pokemaster28.neocities.org"><img src="https://media.discordapp.net/attachments/1035684052805627977/1037022263083552768/button.gif"></a>
