@@ -1,13 +1,13 @@
-<a href="http://users.smartgb.com/g/g.php?a=s&i=g19-00562-49">sign my guestbook?</a>
-<br>
+<img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="http://users.smartgb.com/g/g.php?a=s&i=g19-00562-49">sign my guestbook?</a>
+<br><br>
 <b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif?v=115e6ed7"><br>
 seasian, nonbinary aroace lesbian
 <br><a href="https://en.pronouns.page/@solistice">they/he +</a>
 
 I like pokemon!! <img src="https://barbara.crd.co/assets/images/gallery05/770177fc.gif"><img src="https://barbara.crd.co/assets/images/gallery05/a1c9e904.gif"> (specifically gameverse, speverse, and pokemas. I have not watched the anime in 3 million years and I do not intend to catch up anytime soon)
-I'm one of those people who actually like pokemon for the story. wow. crazy. <img src="https://barbara.crd.co/assets/images/gallery27/4d0157d1.gif">
+I'm one of those people who actually like pokemon for the story. wow. crazy. <img src="https://barbara.crd.co/assets/images/gallery27/4d0157d1.gif"> I like other stuff too but I basically only talk about pokemon so who cares.
 
-I like other stuff too but I basically only talk about pokemon so who cares
+I can do rp for MOST of the cosplays I use but uhhhhh warn me beforehand if youre gonna drag me into one bc I need to get into character. :thumbs up emoji:
 
 <b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b>
 <ul>
