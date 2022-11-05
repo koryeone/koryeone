@@ -4,6 +4,8 @@
 seasian, nonbinary aroace lesbian
 <br><a href="https://en.pronouns.page/@solistice">they/he +</a>
 
+<b>do not copy my skins.</b> light insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
+
 I like pokemon!! <img src="https://barbara.crd.co/assets/images/gallery05/770177fc.gif"><img src="https://barbara.crd.co/assets/images/gallery05/a1c9e904.gif"> (specifically gameverse, speverse, and pokemas. I have not watched the anime in 3 million years and I do not intend to catch up anytime soon)
 I'm one of those people who actually like pokemon for the story. wow. crazy. <img src="https://barbara.crd.co/assets/images/gallery27/4d0157d1.gif"> I like other stuff too but I basically only talk about pokemon so who cares.
 
