@@ -9,7 +9,9 @@ I'm one of those people who actually like pokemon for the story. wow. crazy. <im
 
 <img src="https://barbara.crd.co/assets/images/gallery37/3bb57ebd_original.gif">
 
-I can do rp for MOST of the cosplays I use but uhhhhh warn me beforehand if youre gonna drag me into one bc I need to get into character :thumbs up emoji:. I mainly do short silly stuff on ponytown, my actual writing is reserved for my friends :3c
+I can do rp for MOST of the cosplays I use but warn me beforehand if youre gonna drag me into one bc I need to get into character 👍. Im okay with being referred to with the character's name and pronouns while in rp but if you're referring to me specifically please use my actual prns :3
+
+Most of my rps on ponytown will be silly lighthearted short stuff. I don't do serious stuff with strangers but if we're friends then feel free to ask!!
 
 <hr>
 
