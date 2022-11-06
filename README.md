@@ -13,6 +13,7 @@ seasian, nonbinary aroace lesbian
   <li>if you fit <a href="https://listography.com/dni">basic dni</a></li>
   <li>if you are antirecovery</li>
   <li>if you are apart of the following fandoms (italics = ok if friends or if I int first): hazbin hotel/helluva boss, <i>fnaf</i>, friday night funkin, dsmp, <i>mcyt</i>, <i>genshin impact</i>, <i>cookie run</i>, ybf or that john doe game idk the name of, <i>pokepasta</i>
+  <li><b>if you ship isshushipping or ferriswheelshipping.</b> this counts under no proship but apparently people dont get that so. GET OUT OF MY HOUSE!!</li>
 </ul>
 
 I hide VERY freely, if you're hidden its not personal I promise
