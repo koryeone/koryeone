@@ -10,7 +10,7 @@ seasian, nonbinary aroace lesbian
 
 <b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b>
 <ul>
-  <li>if you fit <a href="listography.com/dni">basic dni</a></li>
+  <li>if you fit <a href="https://listography.com/dni">basic dni</a></li>
   <li>if you are antirecovery</li>
   <li>if you are apart of the following fandoms (italics = ok if friends or if I int first): hazbin hotel/helluva boss, <i>fnaf</i>, friday night funkin, dsmp, <i>mcyt</i>, <i>genshin impact</i>, <i>cookie run</i>, ybf or that john doe game idk the name of, <i>pokepasta</i>
 </ul>
