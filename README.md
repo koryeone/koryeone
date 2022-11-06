@@ -8,6 +8,15 @@ seasian, nonbinary aroace lesbian
 
 <hr>
 
+<b>status meanings</b>
+<ul>
+  <li> ⛔ <b>do not disturb</b>: I'm online, might be offtab but will probably check back in semi-frequently </li>
+  <li> 💬 <b>looking for chat</b>: currently very talkative!! </li>
+  <li> 🎭 <b>looking for rp</b>: this ones pretty rare but. exactly what it says on the tin</li>
+</ul>
+
+<hr>
+
 <b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b>
 <ul>
   <li>if you fit <a href="https://listography.com/dni">basic dni</a></li>
