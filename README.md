@@ -1,10 +1,7 @@
+<b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif?v=115e6ed7"> seasian, nonbinary aroace lesbian, <a href="https://en.pronouns.page/@solistice">they/he +</a>
+<br>
+<br>
 <img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="http://users.smartgb.com/g/g.php?a=s&i=g19-00562-49">sign my guestbook?</a>
-<br><br>
-<b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif?v=115e6ed7"><br>
-seasian, nonbinary aroace lesbian
-<br><a href="https://en.pronouns.page/@solistice">they/he +</a>
-
-<a href="https://rentry.co/solistice">extended info</a>
 
 <hr>
 
@@ -28,6 +25,23 @@ seasian, nonbinary aroace lesbian
 I hide VERY freely, if you're hidden its not personal I promise
 
 <b>do not copy my skins.</b> light insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
+
+<hr>
+
+<b>interests</b>
+
+my current fixation is pokemon!!!! <img src="https://barbara.crd.co/assets/images/gallery05/770177fc.gif"><img src="https://barbara.crd.co/assets/images/gallery05/a1c9e904.gif"> (specifically gameverse, speverse, and pokemas. I have not watched the anime in 3 million years and I do not intend to catch up anytime soon)
+
+I'm one of those people who actually like pokemon for the story. wow. crazy. <img src="https://barbara.crd.co/assets/images/gallery27/4d0157d1.gif"><br>
+I like other stuff too but I basically only talk about pokemon soooooo who cares
+
+for more specific info you may visit my <a href="https://listography.com/solis">listography</a>
+
+<hr>
+
+<b>my friends :)</b>
+<br><br>
+jake, forte, mega, tomoko, ven, nate
 
 <br>
 site button<br>
