@@ -1,5 +1,6 @@
 <b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif?v=115e6ed7"> seasian, nonbinary aroace lesbian, <a href="https://en.pronouns.page/@solistice">they/he +</a>
 <br>
+<img src="https://blinkies.cafe/b/display/0113-autism.gif">
 <br>
 <img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="http://users.smartgb.com/g/g.php?a=s&i=g19-00562-49">sign my guestbook?</a>
 
