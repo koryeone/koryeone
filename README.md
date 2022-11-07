@@ -42,7 +42,7 @@ for more specific info you may visit my <a href="https://listography.com/solis">
 
 <b>my friends :)</b>
 <br><br>
-jake, forte, mega, tomoko, ven, nate
+jake, forte, mega, tomoko, ven, nate, maddie
 
 <br>
 site button<br>
