@@ -9,6 +9,7 @@
 <b>status meanings</b>
 <ul>
   <li> ⛔ <b>do not disturb</b>: I'm online, might be offtab but will probably check back in semi-frequently </li>
+  <li> 🌙 <b>idle</b>: VERY offtab/busy, will probably not respond</li>
   <li> 💬 <b>looking for chat</b>: currently very talkative!! </li>
   <li> 🎭 <b>looking for rp</b>: this ones pretty rare but. exactly what it says on the tin</li>
 </ul>
@@ -42,8 +43,4 @@ for more specific info you may visit my <a href="https://listography.com/solis">
 
 <b>my friends :)</b>
 <br><br>
-jake, forte, mega, tomoko, ven, nate, maddie
-
-<br>
-site button<br>
-<a href="https://pokemaster28.neocities.org"><img src="https://media.discordapp.net/attachments/1035684052805627977/1037022263083552768/button.gif"></a>
+<a href="https://github.com/ENHYPENS">j</a>ake, <a href="https://github.com/souisilver">f</a>orte, mega, tomoko, ven, nate, maddie
