@@ -43,4 +43,4 @@ for more specific info you may visit my <a href="https://listography.com/solis">
 
 <b>my friends :3</b> tell me if you want to be added or removed!!
 <br><br>
-<a href="https://github.com/ENHYPENS">j</a>ake, <a href="https://github.com/souisilver">f</a>orte, mega, tomoko, ven, nate, maddie
+<a href="https://rentry.co/sungu">jake</a, <a href="https://rentry.co/cmajor">forte</a>, mega, tomoko, ven, nate, maddie
