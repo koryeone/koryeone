@@ -22,6 +22,7 @@
 <hr>
 
 <b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b> if you fit <a href="https://listography.com/dni">basic dni</a> or if you are antirecovery. other than that I just hide if I don't like you for whatever reason. I unhide and rehide on impulse dont worry about it 👍
+I will say that <b>pokepasta skins will get hidden on sight</b> (unless we're already friends) though. most of you guys are annoying af sorry not sorry
 
 <b>do not copy my skins.</b> insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
 
