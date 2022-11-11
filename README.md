@@ -1,11 +1,9 @@
-<b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif?v=115e6ed7"> seasian, nonbinary aroace lesbian, <a href="https://en.pronouns.page/@solistice">they/he +</a>
+<b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif?v=115e6ed7"> seasian, nonbinary aroace lesbian, <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
 <br>
 <img src="https://blinkies.cafe/b/display/0113-autism.gif">
 <br>
 <img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="http://users.smartgb.com/g/g.php?a=s&i=g19-00562-49">sign my guestbook?</a>
-
-<hr>
-
+<br><br>
 <b>status meanings</b>
 <ul>
   <li> ⛔ <b>do not disturb</b>: I'm online, might be offtab but will probably check back in semi-frequently </li>
@@ -16,31 +14,16 @@
 
 <hr>
 
-<b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b>
-<ul>
-  <li>if you fit <a href="https://listography.com/dni">basic dni</a></li>
-  <li>if you are antirecovery</li>
-  <li>if you are apart of the following fandoms (italics = ok if friends or if I int first): hazbin hotel/helluva boss, <i>fnaf</i>, friday night funkin, dsmp, <i>mcyt</i>, <i>genshin impact</i>, <i>cookie run</i>, ybf or that john doe game idk the name of, <i>pokepasta</i>
-  <li><b>if you ship isshushipping or ferriswheelshipping.</b> this counts under no proship but apparently people dont get that so. GET OUT OF MY HOUSE!!</li>
-</ul>
-
-I hide VERY freely, if you're hidden its not personal I promise
-
-<b>do not copy my skins.</b> light insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
-
-<hr>
-
-<b>interests</b>
-
-my current fixation is pokemon!!!! <img src="https://barbara.crd.co/assets/images/gallery05/770177fc.gif"><img src="https://barbara.crd.co/assets/images/gallery05/a1c9e904.gif"> (specifically gameverse, speverse, and pokemas. I have not watched the anime in 3 million years and I do not intend to catch up anytime soon)
-
-I'm one of those people who actually like pokemon for the story. wow. crazy. <img src="https://barbara.crd.co/assets/images/gallery27/4d0157d1.gif"><br>
-I like other stuff too but I basically only talk about pokemon soooooo who cares
-
-for more specific info you may visit my <a href="https://listography.com/solis">listography</a>
-
-<hr>
 
 <b>my friends :3</b> tell me if you want to be added or removed!!
 <br><br>
 <a href="https://rentry.co/sungu">jake</a>, <a href="https://rentry.co/cmajor">forte</a>, mega, tomoko, ven, nate, maddie
+
+<hr>
+
+<b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b> if you fit <a href="https://listography.com/dni">basic dni</a> or if you are antirecovery. other than that I just hide if I don't like you for whatever reason. I unhide and rehide on impulse dont worry about it 👍
+
+<b>do not copy my skins.</b> insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
+
+<img src="https://media.discordapp.net/attachments/1006387310255931422/1040741424448159815/etto-bweh.gif" style="height:150px;">
+yeah thats it you have to unlock the rest of my lore yourself
