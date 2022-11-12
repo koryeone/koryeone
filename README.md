@@ -17,7 +17,7 @@
 
 <b>my friends :3</b> tell me if you want to be added or removed!!
 <br><br>
-<a href="https://rentry.co/sungu">jake</a>, <a href="https://rentry.co/cmajor">forte</a>, mega, tomoko, ven, nate, maddie
+<a href="https://rentry.co/sungu">jake</a>, <a href="https://rentry.co/cmajor">forte</a>, mega, molossia, ven, nate, maddie
 
 <hr>
 
