@@ -1,11 +1,11 @@
-last updated: 11/11/2022
+last updated: 11/13/2022
 <br>
 <br>
 <b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif?v=115e6ed7"> seasian, nonbinary aroace lesbian, <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
 <br>
 <img src="https://blinkies.cafe/b/display/0113-autism.gif">
 <br>
-<img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="https://solis.123guestbook.com/">sign my guestbook?</a>
+<img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="https://solis.123guestbook.com/">sign my guestbook ^\_^</a>
 <br><br>
 <b>status meanings</b>
 <ul>
