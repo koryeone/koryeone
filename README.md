@@ -5,7 +5,7 @@ last updated: 11/11/2022
 <br>
 <img src="https://blinkies.cafe/b/display/0113-autism.gif">
 <br>
-<img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="http://users.smartgb.com/g/g.php?a=s&i=g19-00562-49">sign my guestbook?</a>
+<img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="https://solis.123guestbook.com/">sign my guestbook?</a>
 <br><br>
 <b>status meanings</b>
 <ul>
