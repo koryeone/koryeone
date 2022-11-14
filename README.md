@@ -1,4 +1,4 @@
-last updated: 11/13/2022
+last updated: 11/14/2022
 <br>
 <br>
 <b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif"> <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a> . <a href="https://rentry.co/solistice"><i>ext info</i></a>
