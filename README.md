@@ -1,11 +1,10 @@
-last updated: 11/14/2022
+last updated: 11/18/2022
 <br>
 <br>
-<b>solis</b> <img src="https://barbara.crd.co/assets/images/gallery28/a639e43a.gif"> <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a> . <a href="https://rentry.co/solistice"><i>ext info</i></a>
+<b>solis</b> / pixie <img src="https://barbara.crd.co/assets/images/gallery02/331a4478.gif"> <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
 <br>
-<img src="https://blinkies.cafe/b/display/0113-autism.gif">
-<br>
-<img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="https://solis.123guestbook.com/">sign my guestbook ^\_^</a>
+<img src="https://barbara.crd.co/assets/images/gallery11/3c84577d.gif?v=66afe876">
+<a href="https://rentry.co/solistice"><i>ext info</i></a> <img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> <a href="https://solis.123guestbook.com/">sign my guestbook ^\_^</a>
 <br><br>
 <b>status meanings</b>
 <ul>
@@ -17,10 +16,18 @@ last updated: 11/14/2022
 
 <hr>
 
-<b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b> if you fit <a href="https://listography.com/dni">basic dni</a> or if you are antirecovery. other than that I just hide if I don't like you for whatever reason. I unhide and rehide on impulse dont worry about it 👍
+<b><img src="https://barbara.crd.co/assets/images/gallery15/e504d2bd.gif"> DNI</b>
+<ul>
+  <li>if you fit <a href="https://listography.com/dni">basic dni</a>
+  <li>if you are <b>antirecovery</b>, or if <a href="https://gdoc.pub/doc/e/2PACX-1vTRiUQuLNmr-Zg2RD8nOuDHocT8HPQPzNB79Hf1pNdYFXbAkRGt4kpSt3oZBxih_ubVy5pqaZJ9FqyX">you claim you have a d/a</a>.
+  <li>if you ship any of the pokemon protagonists with adult characters those are CHILDREN. isshushippers and ferriswheelshippers especially GET OUT OF MY HOUSE HILBERT AND HILDA ARE 14 DURING BW
+</ul>
 
-<i><b>isshushippers/ferriswheelshippers get out of my house hilbert and hilda are 14 during black and white thx xoxo</b></i>
-
-I have like. 3 pages worth of people hidden if Im sitting on your friends or something just ask me to move I wont mind LOL
-
-<b>do not copy my skins.</b> insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
+other than that I just hide if I don't like you for whatever reason. <i>I unhide and rehide on impulse dont worry about it</i> 👍
+<br><br><br>
+<b><img src="https://barbara.crd.co/assets/images/gallery04/ede7862d.gif"> BYI</b>
+<ul>
+  <li><b>do not copy my skins.</b> insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
+  <li>friends are free to hide/cuddle whatever :3 I dont like strangers getting too close to me though, I'll prob just move away if Im uncomfortable
+  <li>I hide VERY freely. dont bother my friends ab being hidden by me youre just cementing your spot in my hidden list Thx
+  <li>I basically only use the /j, /hj, and /lh tonetags, I dont <i>really</i> need them myself but Im not against using them w me!
