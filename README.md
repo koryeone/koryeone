@@ -31,4 +31,4 @@ other than that I just hide if I don't like you for whatever reason. <i>I unhide
   <li><b>do not copy my skins.</b> insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
   <li>friends are free to hide/cuddle whatever :3 I dont like strangers getting too close to me though, I'll prob just move away if Im uncomfortable
   <li>I hide VERY freely. dont bother my friends ab being hidden by me youre just cementing your spot in my hidden list Thx
-  <li>I basically only use the /j, /hj, and /lh tonetags, I dont <i>really</i> need them myself but Im not against using them w me!
+  <li>I basically only use the /j, /hj, and /lh tonetags, I dont <i>really</i> need any others myself but Im not against using them w me!
