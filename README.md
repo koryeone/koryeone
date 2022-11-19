@@ -1,4 +1,4 @@
-last updated: 11/18/2022
+last updated: 11/19/2022
 <br>
 <br>
 <b>solis</b> / pixie <img src="https://barbara.crd.co/assets/images/gallery02/331a4478.gif"> <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
@@ -32,3 +32,4 @@ other than that I just hide if I don't like you for whatever reason. <i>I unhide
   <li>friends are free to hide/cuddle whatever :3 I dont like strangers getting too close to me though, I'll prob just move away if Im uncomfortable
   <li>I hide VERY freely. dont bother my friends ab being hidden by me youre just cementing your spot in my hidden list Thx
   <li>I basically only use the /j, /hj, and /lh tonetags, I dont <i>really</i> need any others myself but Im not against using them w me!
+  <li>I do not believe that touch <i>trigger</i> is real. I will not harass anyone that claims to have it, and I encourage people who use TT to use TD or DNT instead. <a href="https://techhenzy.com/pony-towns-touch-trigger-controversy/">read this for more detailed information</a>
