@@ -20,6 +20,7 @@ last updated: 11/21/2022
 <ul>
   <li>if you fit <a href="https://listography.com/dni">basic dni</a>
   <li>if you are <b>antirecovery</b>, or if <a href="https://gdoc.pub/doc/e/2PACX-1vTRiUQuLNmr-Zg2RD8nOuDHocT8HPQPzNB79Hf1pNdYFXbAkRGt4kpSt3oZBxih_ubVy5pqaZJ9FqyX">you claim you have a d/a</a>.
+  <li>if you are against <i>responsible</i> self diagnosis.
   <li>if you ship any of the pokemon protagonists with adult characters those are CHILDREN. isshushippers and ferriswheelshippers especially GET OUT OF MY HOUSE HILBERT AND HILDA ARE 14 DURING BW
   <li><b>if you sexualize pokemon in any way.</b> idc if its a joke you will get hidden on sight
   <li>treat the gameverse pokemon characters as if they are the same as their pokespe counterparts and vice versa. sorry I physically cannot handle it
