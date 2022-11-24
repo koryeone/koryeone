@@ -1,6 +1,3 @@
-last updated: 11/21/2022
-<br>
-<br>
 <b>solis</b> / pixie <img src="https://barbara.crd.co/assets/images/gallery02/331a4478.gif"> <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
 <br>
 <img src="https://barbara.crd.co/assets/images/gallery11/3c84577d.gif?v=66afe876">
