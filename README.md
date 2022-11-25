@@ -25,8 +25,11 @@
   <li>treat the gameverse pokemon characters as if they are the same as their pokespe counterparts and vice versa. sorry nothing personal Im just autistic
 </ul>
 
-<i>pokepasta fans interact at your own discretion.</i> other than that I just hide if I don't like you for whatever reason. I unhide and rehide on impulse dont worry about it 👍
-<br><br><br>
+<i>I'd prefer it if pokepasta didn't interact.</i>
+
+other than that I just hide if I don't like you for whatever reason. I unhide and rehide on impulse dont worry about it 👍
+
+<br><br>
 <b><img src="https://barbara.crd.co/assets/images/gallery04/ede7862d.gif"> BYI</b>
 <ul>
   <li><b>do not copy my skins.</b> insp is ok but if you straight up copy any of my skins I will find you and I will Get you. thanks!
