@@ -17,6 +17,8 @@
 <ul>
   <li>if you fit <a href="https://listography.com/dni">basic dni</a>
   <li>if you are <b>antirecovery</b>, or if <a href="https://gdoc.pub/doc/e/2PACX-1vTRiUQuLNmr-Zg2RD8nOuDHocT8HPQPzNB79Hf1pNdYFXbAkRGt4kpSt3oZBxih_ubVy5pqaZJ9FqyX">you say you have a d/a or say you are an 'IRL'</a>. (introjects exempt obvs) seek help! genuinely!
+  <li>if you use the phrases "if you think you're me" or call doubles "fakes"
+  <li>if you think reality checking is inherently bad
   <li>if you are against <i>responsible</i> self diagnosis. not everyone can afford a professional one
   <li>if you ship any of the pokemon protagonists with adult characters those are CHILDREN. isshushippers and ferriswheelshippers especially GET OUT OF MY HOUSE HILBERT AND HILDA ARE 14 DURING BW
   <li><b>if you sexualize pokemon in any way.</b> idc if its a joke you will get hidden on sight
