@@ -12,3 +12,5 @@
   <li> 💬 <b>looking for chat</b>: currently very talkative!! </li>
   <li> 🎭 <b>looking for rp</b>: this ones pretty rare but. exactly what it says on the tin. <i>do not do anything shippy without my permission.</i></li>
 </ul>
+
+<b>usually sitting w my friends or hanging out around pokemon/nintendo area!</b> if I'm by myself feel free to int I don't bite I promise ^\_^
