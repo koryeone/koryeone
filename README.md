@@ -1,4 +1,4 @@
-<b>solis</b> / pixie <img src="https://barbara.crd.co/assets/images/gallery02/331a4478.gif"> <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
+<img src="https://barbara.crd.co/assets/images/gallery02/331a4478.gif"> <b>solis</b> / pixie | <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
 <br>
 
 <a href="https://rentry.co/solistice">main rentry</a> <img src="https://barbara.crd.co/assets/images/gallery11/3c84577d.gif?v=66afe876"> <a href="https://rentry.co/tinkatons">dni/byi</a>
