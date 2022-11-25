@@ -25,7 +25,7 @@
   <li>treat the gameverse pokemon characters as if they are the same as their pokespe counterparts and vice versa. sorry nothing personal Im just autistic
 </ul>
 
-other than that I just hide if I don't like you for whatever reason. <i>I unhide and rehide on impulse dont worry about it</i> 👍
+<i>pokepasta fans interact at your own discretion.</i> other than that I just hide if I don't like you for whatever reason. I unhide and rehide on impulse dont worry about it 👍
 <br><br><br>
 <b><img src="https://barbara.crd.co/assets/images/gallery04/ede7862d.gif"> BYI</b>
 <ul>
