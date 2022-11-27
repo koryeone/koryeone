@@ -1,9 +1,9 @@
-<img src="https://barbara.crd.co/assets/images/gallery02/331a4478.gif"> <b>solis</b> / pixie | <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
+<img src="https://cdn.discordapp.com/attachments/1046214765913063494/1046216894505558136/pinkds.gif"> <b>solis</b> / pixie | <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
 <br>
 
-<a href="https://rentry.co/solistice">main rentry</a> <img src="https://barbara.crd.co/assets/images/gallery11/3c84577d.gif?v=66afe876"> <a href="https://rentry.co/tinkatons">dni/byi</a>
+<a href="https://rentry.co/solistice">main rentry</a> <img src="https://cdn.discordapp.com/attachments/1046214765913063494/1046216895105347584/shootingstar.gif"> <a href="https://rentry.co/tinkatons">dni/byi</a>
 <br>
-<a href="https://solis.123guestbook.com/">sign my guestbook ^\_^</a> <img src="https://barbara.crd.co/assets/images/gallery03/a212d5e6.gif"> 
+<a href="https://solis.123guestbook.com/">sign my guestbook ^\_^</a> <img src="https://cdn.discordapp.com/attachments/1046214765913063494/1046216894824333412/pinkbook2.gif"> 
 <br><br>
 <b>status meanings</b>
 <ul>
