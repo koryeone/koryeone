@@ -1,4 +1,4 @@
-<img src="https://cdn.discordapp.com/attachments/1046214765913063494/1046216894505558136/pinkds.gif"> <b>solis</b> / pixie | <a href="https://en.pronouns.page/@solistice"><b>they</b>/he +</a>
+<img src="https://cdn.discordapp.com/attachments/1046214765913063494/1046216894505558136/pinkds.gif"> <b>solis</b> / pixie | <a href="https://en.pronouns.page/@solistice"><b>mirror pronouns</b> / any pronouns</a>
 <br>
 
 <a href="https://rentry.co/solistice">main rentry</a> <img src="https://cdn.discordapp.com/attachments/1046214765913063494/1046216895105347584/shootingstar.gif"> <a href="https://rentry.co/tinkatons">dni/byi</a>
