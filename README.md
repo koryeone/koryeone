@@ -4,7 +4,7 @@
 <img src="https://pixelbank.neocities.org/decome/space%20and%20skies/c06b5a81.gif"> <b>solis</b> / pixie | <a href="https://en.pronouns.page/@mtcoronet"><b>mirror pronouns</b> / any pronouns</a>
 <br>
 
------ <img src="https://pixelbank.neocities.org/decome/bows/f211221.gif">. <a href="https://rentry.co/solistice">main rentry</a> | <a href="https://rentry.co/tinkatons">dni/byi</a>
+----- <img src="https://pixelbank.neocities.org/decome/bows/f211221.gif">. <a href="https://rentry.co/shinycharms">main rentry</a> | <a href="https://rentry.co/tinkatons">dni/byi</a>
 <br>
 ------------- <img src="https://pixelbank.neocities.org/decome/space%20and%20skies/ebb74443.gif">. <a href="https://solis.123guestbook.com/">sign my guestbook</a> 
 <br>
