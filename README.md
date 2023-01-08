@@ -3,11 +3,11 @@
 
 I don't like people I barely know referring to me by my name, just use the character's name that I'm cosplaying as or just 'dragonspiral' if you have to refer to me
 
------ <img src="https://pixelbank.neocities.org/decome/space%20and%20skies/c06b5a81.gif"> <a href="https://en.pronouns.page/@mtcoronet"><b>mirror</b>/any pronouns</a>
+----- <img src="https://pixelbank.neocities.org/decome/bows/f211221.gif">. <a href="https://rentry.co/shinycharms">rentry/extra info</a>
 <br>
---------- <img src="https://pixelbank.neocities.org/decome/bows/f211221.gif">. <a href="https://rentry.co/shinycharms">main rentry</a>
+-------- <img src="https://pixelbank.neocities.org/decome/space%20and%20skies/c06b5a81.gif"> <a href="https://en.pronouns.page/@mtcoronet"><b>mirror</b>/any pronouns</a>
 <br>
------ <img src="https://pixelbank.neocities.org/decome/space%20and%20skies/ebb74443.gif">. <a href="https://solis.123guestbook.com/">sign my guestbook</a> 
+------------ <img src="https://pixelbank.neocities.org/decome/space%20and%20skies/ebb74443.gif">. <a href="https://solis.123guestbook.com/">sign my guestbook</a> 
 <br>
 <hr>
 <b>status meanings</b>
@@ -17,4 +17,4 @@ I don't like people I barely know referring to me by my name, just use the chara
   <li> 💬 <b>looking for chat</b>: probably attention seeking tbh </li>
 </ul>
 
-<b>usually sitting w my friends or hanging out around pokemon/nintendo area!</b> if I'm by myself feel free to int I don't bite I promise ^\_^
+<b>usually sitting w my friends or hanging out around pokemon/nintendo area,</b> if I'm by myself feel free to int I don't bite (until I do) ^\_^
