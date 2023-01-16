@@ -17,4 +17,4 @@ I don't like people I barely know referring to me by my name, just use the chara
   <li> 💬 <b>looking for chat</b>: probably attention seeking tbh </li>
 </ul>
 
-<b>usually sitting w my friends or hanging out around pokemon/nintendo area,</b> if I'm by myself feel free to int I don't bite (until I do) ^\_^
+usually sitting w my friends or hanging out around pokemon/splatoon/nintendo area, crowns/whispers/boops/compliments whatever are fine. I will just move if I am uncomfortable
