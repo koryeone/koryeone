@@ -19,4 +19,4 @@ I don't like people I barely know referring to me by my name, just use the chara
 
 I have my chatlog on the personal tab 99% of the time if you want me to see your message it's better if you whisper me
 
-usually sitting w my friends or hanging out around pokemon/splatoon/nintendo area, crowns/whispers/boops/compliments whatever are fine. I will just move if I am uncomfortable
+usually sitting w my friends, feel free to interact if I'm not with them. crowns/whispers/boops whatever are cool I will just move if I am uncomfortable
