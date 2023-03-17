@@ -5,8 +5,6 @@ I don't like people I barely know referring to me by my name, just use the chara
 
 ----- <img src="https://pixelbank.neocities.org/decome/bows/f211221.gif">. <a href="https://rentry.co/shinycharms">rentry/extra info</a>
 <br>
--------- <img src="https://pixelbank.neocities.org/decome/space%20and%20skies/c06b5a81.gif"> <a href="https://en.pronouns.page/@mtcoronet"><b>mirror</b>/any pronouns</a>
-<br>
 ------------ <img src="https://pixelbank.neocities.org/decome/space%20and%20skies/ebb74443.gif">. <a href="https://solis.123guestbook.com/">sign my guestbook</a> 
 <br>
 <hr>
